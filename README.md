@@ -2,7 +2,7 @@
 - 👀 I’m interested in finding work within Tech!
 - 🌱 I’m currently learning C++, C
 - 💞️ I’m looking to collaborate on anything! Reach out to me please! 
-- 📫 Feel free to email me at cartert414@gmail.com
+- 📫 Feel free to email me at cterry3@stedwards.edu
 - 😄 Pronouns: He/Him/They/Them
 
 
